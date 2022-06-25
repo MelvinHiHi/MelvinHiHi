@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @MelvinHiHi
 - 👀 I’m love Games and Anime xD 
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: Melvin HiHi#2128 on Discord
 
 <!---
