@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MelvinHiHi
-- 👀 I’m love Games and Anime xD 
-- 📫 How to reach me: Melvin HiHi#2128 on Discord
+- 👀  New to Github :3
+- 📫 How to reach me: melvin.hihi on Discord
 
 <!---
 MelvinHiHi/MelvinHiHi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
